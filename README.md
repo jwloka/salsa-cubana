@@ -8,7 +8,7 @@ Some personal notes with hints on how to remember the figures we've been learnin
 - 01-04 Sideward opening out, step towards the girl on 2, close the figure on 3
 - 05-08 Walk around each other 5-6, raise left arm on 6 and walk under the arm
 
-### Adios Con La Hermana (2x8)
+### [Adios Con La Hermana](https://www.youtube.com/watch?v=N5Yrm_ksDX0) (2x8)
 - 01-08 Adios w/ with turn towards the girl on 7-8
 - 09-16 Enchufla 
 
@@ -36,8 +36,7 @@ Some personal notes with hints on how to remember the figures we've been learnin
 - 01-04 Basic Forward Step (w/ right tap on 8)
 - 05-08 Side step to the right on 5
 
-### El Dedo (3x8)
-- [Link: Rueda de Casino: El Dedo!](https://www.youtube.com/watch?v=FOGCD0XPTFc)
+### [El Dedo](https://www.youtube.com/watch?v=FOGCD0XPTFc) (3x8)
 - 01-08 Guapea Open 
 - 09-16 Vacilala w/o letting go her hand
 - 17-24 Noeve: Enchufla arriba walking under her arm on 6 
@@ -45,7 +44,7 @@ Some personal notes with hints on how to remember the figures we've been learnin
 - 32-40 Dile Que No
 
 ### El Dedo Con ???
-El Dedo w/ turn man and turn woman:
+El Dedo w/ turn man and turn woman.
 ** TBD
 
 
@@ -53,14 +52,14 @@ El Dedo w/ turn man and turn woman:
 ** TBD
 
 ### Enchufla (1x8) 
-Turn into with sidestep left and right (outside):
+Turn into with sidestep left and right (outside).
 - 01-04 Sideward opening out, step forward on 2, switch sides on 3
 - 05-08 Basic step: Step towards the girl on 2 and close position
 
 ### Enchufla Complicado (1x8) 
 Enchufla with two hands. 
 
-### Enchufla Double (2x8)
+### [Enchufla Doble](https://www.youtube.com/watch?v=6OxXNbCZmpA) (2x8)
 - 01-08 Enchufla w/ blocking her turn on left should w/ right hand
 - 09-16 Enchufla
 
@@ -68,7 +67,7 @@ Enchufla with two hands.
 - 01-08 Enchufla w/o closing the figure
 - 09-16 Exhibela
 
-### Exhibela (1x8)
+### [Exhibela](https://www.youtube.com/watch?v=51lJ_32VRwc) (1x8)
 - 01-04 Basic with cross step toward right, raise left arm on 1
 - 05-08 turn girl with sidestep to left (inside)
 
@@ -100,7 +99,7 @@ Basic steps with stepping forward to the left and to the right.
 ### Recoger (1x8)
 Step out on 1 with tip left and reconnect.
 
-### Setenta (2x8)
+### [Setenta](https://www.youtube.com/watch?v=_B55w-0o0qw) (2x8)
 - 01-08 Guapea Open
 - 09-16 Noeve w/ offering right hand
 - 17-24 Enchufla complicado
@@ -126,13 +125,24 @@ Step out on 1 with tip left and reconnect.
 - 25-32 Enchufla complicado
 - 33-40 Dile Que No 
 
-### Sombrero (1x8)
+### [Sombrero](https://www.youtube.com/watch?v=pY_sGnB_sTc&t=66s) (1x8)
 - 01-08 Guapea Open
 - 09-16 Vacilala high five  
 	- w/ taking her right hand with your left hand, and 
 	- catching her left hand 
 	- bringing both hands behind our heads
 - 17-24 Dile Que No: After letting her hands go 
+
+### Sombrero Con Tres (4x8)
+Sombrero w/ two times tap step and Coca Cola Zero.
+- 01-08 Guapea Open
+- 09-16 Sombrero w/ letting go her hands on 7-8
+- 17-20 Right tap step w/ putting hands on her shoulders on 1
+- 21-24 Left tap step
+- 25-28 Right tap steps
+- 29-32 Left tap step
+- 33-40 Coca Cola Zero
+- 41-48 Dile Que No
 
 ### Sombrero Doble (5x8)
 - 01-08 Guapea Open
@@ -145,7 +155,7 @@ Step out on 1 with tip left and reconnect.
 - 01-08 Guapea Open
 - 09-16 Sombrero arriba: Raise left hand and walk under her arm
 - 17-24 Enchufla w/ Sombrero
-- 25-32 Dile que no
+- 25-32 Dile Que No
 
 ### Sombrero Tres (3x8)
 - 01-08 Guapea Open
@@ -154,7 +164,7 @@ Step out on 1 with tip left and reconnect.
 - 25-32 Sombrero
 - 33-40 Dile Que No
 
-### Sombrero complicado (2x8)
+### Sombrero Complicado (2x8)
 - 01-08 Guapea open
 - 09-16 Sombrero w/o letting go and stepping forward
 - 17-24 Walk with arms behind necks 1-8
@@ -168,9 +178,8 @@ Step out on 1 with tip left and reconnect.
 - 33-40 Exhibela
 - 41-48 Dile Que No
 
-### Vacilala (1x8)
-AKA: La Palma w/ letting go her hand. Step toward the girl w/ opening triangle w/ left hand:
-- turn with letting go her right hand
+### [Vacilala](https://www.youtube.com/watch?v=pT1AmRJVtRY&t=85s) (1x8)
+AKA: La Palma w/ letting go her hand. Step toward the girl w/ opening triangle w/ left hand and turn her with letting go her right hand:
 - 01-08 Guapea Open 
 - 07-12 Step forward with left (let go her hand), cross step right behind her
 - 12-16 Basic step on 5, girl show up on your right shoulder
@@ -181,3 +190,29 @@ AKA: La Palma w/ letting go her hand. Step toward the girl w/ opening triangle w
 - 09-16 Vacilala
 - 17-24 Coca Cola
 - 25-32 Dile Que No
+
+### Vacilala Con Giro (2x8)
+Vacilala w/ him turning after her.
+- 01-08 Guapea Open
+- 09-16 Vacilala
+- 17-20 Forward turn on 3-4
+- 21-24 Basic step
+- 25-32 Dile Que No
+
+### Vacilala Con Tres (4x8)
+Vacilala w/ two times tap step and Coca Cola Zero.
+- 01-08 Guapea Open
+- 09-16 Vacilala w/ stopping her turn with both hands on her shoulders on 7-8
+- 17-20 Right tap step
+- 21-24 Left tap step
+- 25-28 Right tap steps
+- 29-32 Left tap step
+- 33-40 Coca Cola Zero
+- 41-48 Dile Que No
+
+### Vacilala Dos (1x8)
+Vacilala w/ both turning at the same time.
+- 01-08 Guapea Open 
+- 07-12 Step forward with left (let go her hand on 5), cross step right behind her
+- 12-16 Small step right behind left foot on 5, turn right on 7-8
+- 17-24 Dile Que No
