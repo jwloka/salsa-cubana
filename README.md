@@ -1,9 +1,11 @@
 # Salsa Figures @ Salsa Passion
-Some personal notes with hints on how to remember the figures we've been learning at Salsa Passion. The figures are sorted alphabetically. Since some figures include the steps of others I simply refer to them.
+Some personal notes with hints on how to remember the figures we've been learning at [Salsa Passion](http://salsapassion.ch). The figures are sorted alphabetically. Since some figures include the steps of others I simply refer to them.
+
+{{TOC}}
 
 **Disclaimer:** The wording may be wrong, the spelling too as well as the timing. I'm neither an expert in Spanish nor in Salsa Cubana. 
 
-
+## Figures (alphabetically)
 ### Adios (1x8)
 - 01-04 Sideward opening out, step towards the girl on 2, close the figure on 3
 - 05-08 Walk around each other 5-6, raise left arm on 6 and walk under the arm
@@ -48,7 +50,7 @@ El Dedo w/ turn man and turn woman.
 ** TBD
 
 
-### El Deado complicado (5x8)
+### El Dedo Complicado (5x8)
 ** TBD
 
 ### Enchufla (1x8) 
@@ -151,7 +153,7 @@ Sombrero w/ two times tap step and Coca Cola Zero.
 - 25-32 Andi Back to Back by Tow Hands ???
 - 33-40 Dile Que No
 
-#### Sombrero Dos (2x8)
+### Sombrero Dos (2x8)
 - 01-08 Guapea Open
 - 09-16 Sombrero arriba: Raise left hand and walk under her arm
 - 17-24 Enchufla w/ Sombrero
@@ -216,3 +218,8 @@ Vacilala w/ both turning at the same time.
 - 07-12 Step forward with left (let go her hand on 5), cross step right behind her
 - 12-16 Small step right behind left foot on 5, turn right on 7-8
 - 17-24 Dile Que No
+
+## Other sources
+[Rueda de Casino Wiki](https://ruedawiki.org/): Rueda de Casino is a style of Salsa where several couples dance choreographically around a circle, with the dance moves being called by one person, a caller. This style was developed in Cuba in the 1950s [[More at Wikipedia](http://en.wikipedia.org/wiki/Rueda_de_Casino)]. The wiki is to help all students of Rueda remember and refine their Rueda patterns, reflecting local variations, and growth of the dance. Please contribute! Below are step-by-step instructions for each rueda move and under the fold, where possible, a link to an online video.
+
+[Salsa Lust](http://www.salsalust.com/): Ever wanted to know how to salsa? Need a remainder of the moves taught in your salsa dance class? Salsa Lust is just for you! the most comprehensive salsa moves list offered on web.
