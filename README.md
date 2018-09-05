@@ -20,6 +20,13 @@ Adios combined with an Enchufla.
 - 01-08 Adios w/ with turn towards the woman on 7-8
 - 09-16 Enchufla 
 
+### Adios Con Prima (4x8)
+- 01-08 Adios
+- 09-16 Enchufla arriba
+- 17-24 Enchufla complicada
+  - Show left hand palm to ask for her hand
+- 25-32 Sombrero
+
 ### A Centro (2x8)
 A figure that flows like Dile Que No but from open position.
 - 01-08 Enchufla
@@ -343,7 +350,20 @@ Like a ‘Vacilala Dos’ but the man appears to be turning twice. The figure ha
 	- Small step towards the woman on 6
 	- Turn right on 7-8, be ready to step towards the woman on 1
 - 17-24 Dile Que No
+
+## Turning techniques
+Most male turns are on 7-8, i.e., you'll turn on your right foot.
+
+### 180-360 Turn left
+- Basic steps
+- Step back on 1 (left), walk forward on 2/3
+- Step forward on 5 (right) and look left, turn back on 6
+- Step forward on 7 and turn 180-360 till 8 on right foot
+- Step towards girl on 1
+
+
 ****
+
 ## Bachata Figures @ Salsa Passion
 ### Basic Step
 - Don’t start with side step
@@ -353,11 +373,13 @@ Like a ‘Vacilala Dos’ but the man appears to be turning twice. The figure ha
 ### Arriba / Abacho
 - left arriba
 - right abacho
+
 ### 180 degree turn
 - left 45 degree arriba
 - right knew between women legs
 - turn right 
 - turn left
+
 ### 360 degree turn
 ### Open turn (back turn)
 ### Women turn
@@ -366,6 +388,7 @@ Like a ‘Vacilala Dos’ but the man appears to be turning twice. The figure ha
 ### Lady turn left
 ### El Dedo
 - Rise left arm on right 
+
 ### Enchufla
 ### Setenta
 
@@ -376,6 +399,7 @@ Like a ‘Vacilala Dos’ but the man appears to be turning twice. The figure ha
 	* first step after tap, parallel and low, bounce your knees
 * Arriba - abacho
 * Left and right
+
 ### Positions
 * close position
 	* classic hand holding
@@ -384,6 +408,7 @@ Like a ‘Vacilala Dos’ but the man appears to be turning twice. The figure ha
 	* reached by walk abacho faster
 	* swing arms with tap
 	* straight arms with left and right turn
+
 ### Figures
 * 180 turn
 * 360 turn in close position
